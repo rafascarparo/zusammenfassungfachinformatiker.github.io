@@ -1,0 +1,2 @@
+# zusammenfassungfachinformatiker.github.io
+Zusammenfassung Fachinformatiker AP1
